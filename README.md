@@ -11,7 +11,7 @@ My name is Shagun Agrawal. I am a web developer and a problem solver and I quote
 
 # 😎 My, Hobbies! 
 
-I ❤ making Paintings and dancing too.
+I ❤ making Paintings and dancing.
 
 
 
